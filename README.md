@@ -3,7 +3,7 @@
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
 # 欢迎来到翻墙部落！
 
-打开天窗,听一听外面的声音... <A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>时事热点</FONT></STRONG></A><STRONG><FONT size=4> | 
+打开天窗,听一听外面的声音... <A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | 
 
 **本页固定短网址**：**http://fqbl.tk**  推荐使用 火狐，chrome等非国产浏览器访问(重要)！
 
@@ -13,13 +13,15 @@
 
 ★★天灭中共，瘟疫预警。告訴您的親人和朋友，赶快退出中共的“党、团、队”组织，**三退保平安**，不跟邪党陪葬！★★
 
+ </FONT></STRONG><A href="https://d1j7c6m023fl7x.cloudfront.net/dta2V" target=_blank><STRONG><FONT size=4>纪录片《四亿人的觉醒》—对三退精神觉醒运动的调查</FONT></STRONG></A><STRONG><FONT size=4> 
+
 ★★诚心敬念“**法轮大法好、真善忍好**”，逢凶化吉，遇难呈祥,避瘟疫！★★
 
 ----------------------------------------------------------------------
 
 ![](https://raw.githubusercontent.com/osurf/up/master/Web-Banner.jpg)
 
-**《为什么会有人类》** 法轮功创始人揭示天机！ [下载PDF文档](https://bitbucket.org/fastfile2010/aaa202102/downloads/20230120.pdf)  
+**《为什么会有人类》** 法轮功创始人揭示天机！ || [下载PDF文档](https://bitbucket.org/fastfile2010/aaa202102/downloads/20230120.pdf) 
 
 《共<m>产 主义的 终 极 目的（中国篇）》  [下载TXT版](https://bitbucket.org/fastfile2010/aaa202102/downloads/gczydzjmd.zip)  ||  [PDF阅读&打印版下载](https://bitbucket.org/fastfile2010/aaa202102/downloads/jpn-s.pdf)  
  
@@ -59,8 +61,10 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！目前已有超过4亿民众在大纪元声明退出“党、团、队”，没有声明“三退”的大陆同胞们：时间不等人，请尽快“三退”！ 天要灭中共，不要给中共邪党做陪葬! 
 
-[声明退出党团队请点击这里](http://fqbl2022.tk/) |||  [网址2](http://fqbl2022.ml/) 
+[声明退出党团队请点击这里](https://dfxrfb9070id6.cloudfront.net/tui) |||  [网址2](https://dhltq9qxjnmw2.cloudfront.net/tui) 
 
+ </FONT></STRONG><A href="https://d1j7c6m023fl7x.cloudfront.net/dta2V" target=_blank><STRONG><FONT size=4>纪录片《四亿人的觉醒》—对三退精神觉醒运动的调查</FONT></STRONG></A><STRONG><FONT size=4> 
+ 
 ---------------------------------------------------------
 **●电子书下载** 
  
@@ -84,7 +88,7 @@
 
 **●经典视频下载**（高速）
 
-【《活摘 十年调查》】  [在线播放](https://github.com/svappp) 
+【《活摘 十年调查》】  [在线播放](https://github.com/svappp)
 
 1999年以后，在中国发生的活摘暴行，一个号称为人民服务的政党在活摘自己国民的器官，这是这个星球没有过的罪恶。今天此罪恶还在延续.。。。
 
@@ -102,7 +106,7 @@
 
 【大跃进真相 】[下载视频](https://bitbucket.org/fastfile2010/aaa202102/downloads/DaYueJin.3gp)
 
-【纪录片：我们告诉未来 】 [在线播放](https://github.com/svappp)
+【12集大型记录片：我们告诉未来 】 [在线播放](https://d3nx3jyvdb76se.cloudfront.net/DwRpH)
 
 【九评共产党】 [在线播放](https://github.com/svappp)  
 
@@ -124,6 +128,7 @@
 
 回归那更高、更美好的天国家园—是生命在轮回中苦苦的祈盼！也是生命存在的真正意义！
 
+【12集大型记录片：我们告诉未来 】 [在线播放](https://d3nx3jyvdb76se.cloudfront.net/DwRpH)
 
 -----------------------------------------------------------
 
