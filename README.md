@@ -5,8 +5,6 @@
 
 打开天窗,听一听外面的声音... <A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://github.com/uuu3/u/blob/master/u.md#1" target=_blank><STRONG><FONT size=4>全球时事热点</FONT></STRONG></A><STRONG><FONT size=4> | [在线视频高速入口](https://d7gsazrogqicg.cloudfront.net/98gj)
 
-**如果本页图片或软件无法下载，请尝试刷新页面。**
-
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，敬请广传,功德无量！**
 
 ★★天灭中共，瘟疫预警。告訴您的親人和朋友，赶快退出中共的“党、团、队”组织，**三退保平安**，不跟邪党陪葬！★★
